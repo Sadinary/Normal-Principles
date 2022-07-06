@@ -1,4 +1,4 @@
-# 心理学定律
+# 语言学定律
 
 > 全称: Communication in New Language and Continue
 
